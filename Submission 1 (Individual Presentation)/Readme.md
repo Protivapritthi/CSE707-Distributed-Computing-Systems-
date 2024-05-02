@@ -1,4 +1,4 @@
-Link to unlisted YouTube video: https://youtube.com/.....
+Link to unlisted YouTube video: https://youtu.be/bcrkBcy2v2w 
 
 Public link to the slide (Anyone on the internet can view without login): https://docs.google.com/presentation/d/1VX4ZRJPIgNza_BBmeZ3Wy9KNw4FG89k4xndPhqVMVFs/edit#slide=id.g26f00f01d79_0_84
 
